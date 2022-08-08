@@ -1,2 +1,2 @@
 # NFT-Collection
-It makes me suffered
+It makes me suffer ;-;
